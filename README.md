@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Wandfuge73
 - 👀 I’m interested in: EvRyTh1nG
 - 🌱 I’m currently learning...
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ... projects
 - 📫 How to reach me: not
 - 😄 Pronouns: unicorn
 - ⚡ Fun fact: I like Acrylfugen
